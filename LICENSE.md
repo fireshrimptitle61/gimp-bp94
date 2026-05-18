@@ -1,4 +1,4 @@
-# 
+# ultimate Adobe Photoshop for PC plugins is the best Adobe Photoshop for PC plugins with color-management and node-editing. Safe, reliable, and optimized for maximum performance.
 
 
 
